@@ -1,2 +1,2 @@
 Bautista Leiva
-Este es un prueba de estudio
+Este es una prueba de estudio
